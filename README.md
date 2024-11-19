@@ -1,0 +1,1 @@
+La educación STEM se basa en la idea de que estas disciplinas no deben ser enseñadas de forma aislada, sino que deben integrarse para abordar problemas reales de manera interdisciplinaria. Esto permite a los estudiantes aplicar conocimientos teóricos en contextos prácticos, lo que resulta en un aprendizaje más significativo y relevante.
